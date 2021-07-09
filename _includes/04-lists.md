@@ -1,1 +1,11 @@
-Replace this with a list of your favorite things.
+*READING
+**About History
+**Distopic Novels
+**Jane Austen
+*CINEMA
+**Historical movies
+**Easy-to-Watch
+**Super-heroes
+*LEARNING
+**About Everything
+**About Anything
