@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Super-organized**, *in love* with **serious games** and making adults recover their interest in learning
